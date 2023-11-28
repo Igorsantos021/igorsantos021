@@ -1,4 +1,4 @@
-![alt text](https://www.telesintese.com.br/wp-content/uploads/2016/02/mark-zuckerberg-headshot.jpg)
+![alt text](https://www.petroita.com.br/images/img1-1.jpg)
 # Igor Fernandes Dos santos
 ## santosigor868@gmail.com - (19) 98814-9197
 > "Em algum lugar, algo incrivel está esperando para ser descoberto." - Carls Sagan
